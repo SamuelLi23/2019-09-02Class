@@ -1,1 +1,2 @@
-# 2019-09-02Class
+# Work from lecture on Labor Day
+s
